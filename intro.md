@@ -206,7 +206,36 @@ here. …Uh, see You soon!”
 Anjali smiled her characteristically big smile (tm) as the message
 went on, her friend’s bashfulness on the phone playing as much a part
 in its creation as a diner visit she (hopefully) wouldn’t be paying
-for. Cupping her wrist, she cut off a message from her father she’d
-still not gotten around to responding to. She saw him this
-morning—Once she’d gotten her armor, of course—So she was sure it
-wasn’t too urgent.
+for. 
+
+Cupping her wrist, she cut off a message from her father she’d still
+not gotten around to responding to. She saw him this morning—Once
+she’d gotten her armor, of course—So she was sure it wasn’t too
+urgent.
+
+A few minutes later, a train pulled into the station. A big mass of
+yellow metal caught Anjali’s eyes as it moved behind the windows of
+the train. It lumbered slowly along, towards a group of
+people. Together, they crowded the double doors of the train—doors now
+besieged on this side as well—until a soft buzzer sounded the door’s
+surrender.
+
+The riders exited the train, Petya included.
+
+“Pet! Look at *You*!” Anjali said. She ran the few paces between them,
+placing a hand on Petya’s shoulder. “In that huge hunk of hefty metal!
+You wear it well!” A smile echoed between them.
+
+“Heh, at least I’ve got something on. Are they sending You out there
+naked, just that big bulbous bag for warmth?” Petya said. “…You look
+great too. Where’s our third wheel?”
+
+“He’s holding back the horde, over at the Southern End.” Said
+Anjali. “With any luck, we can get there before he succumbs to his
+inevitable demise.” She delivered these words in her usual
+100%-too-dramatic tone of voice, and punctuated them with a wink.
+
+“Ah, he’s got us a table, then?”
+
+“Yeah, he’s got us covered. You as hungry as I am? They didn’t let us
+eat last night.”
